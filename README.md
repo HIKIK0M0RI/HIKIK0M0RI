@@ -1,4 +1,5 @@
-![image alt](https://github.com/L0VESIICK/L0VESIICK/blob/3f13a18a9eafc4690b79fcddee09c102f6bcd460/basil%20basil_20260202165231.png) 
+![image alt](https://github.com/L0VESIICK/L0VESIICK/blob/67114ee3f3faf5135912d0a18f19f22b4662e2ae/500px-Sweetheart_(neutral).gif) 
 
-                                                 
-                                                  ^_^ ᥕі⍴ іg
+$$\quad$$
+                                     
+$$\color{#FA4771}{\text{" I am so lonely here... I must venture somewhere else to find my soulmate and live happily ever after . !"}}$$                                  
