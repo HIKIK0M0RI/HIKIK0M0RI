@@ -1,5 +1,7 @@
 $$\color{#6C0FFE}{\text{▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄}}$$
                                     
+  ✦[A](https://kieruseo.atabook.org) TA    ✦[S](https://basillyy.straw.page) TRAW
+                                    
 ![image alt](https://github.com/L0VESIICK/L0VESIICK/blob/d9312d38b48a6f421acab95ee297986924f7579c/42m1mygghpn61.gif) 
                                     
 $$\color{#6C0FFE}{\text{▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄}}$$
