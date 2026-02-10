@@ -1,6 +1,6 @@
 $$\color{#6C0FFE}{\text{▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄}}$$
                                     
-  ✦[A](https://kieruseo.atabook.org) TA    ✦[S](https://basillyy.straw.page) TRAW
+   ✦[𝗔](https://kieruseo.atabook.org)𝗧𝗔           ✦[S](https://basillyy.straw.page)𝗧𝗥𝗔𝗪
                                     
 ![image alt](https://github.com/L0VESIICK/L0VESIICK/blob/d9312d38b48a6f421acab95ee297986924f7579c/42m1mygghpn61.gif) 
                                     
